@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @faozy99
-
 - 🌱 I’m a Web developer
 - 💞️ I’m looking to collaborate to work on projects..
 
